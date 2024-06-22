@@ -1,4 +1,4 @@
-# win2asian
+# win2asia
 Agen Pasti Bayar? Win2Asia Pastinya
 ===================================
 
